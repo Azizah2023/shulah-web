@@ -1,2 +1,2 @@
 # Shulah 🔥
-### application help you achive your goal 🎉
+### application help you achive your learning goal 🎉
